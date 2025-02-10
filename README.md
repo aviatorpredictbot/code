@@ -38,12 +38,12 @@ Let’s walk you through the reasons to download the APK file of the Aviator App
 The learning curve is as simple as ABC. Follow the instructions below to stay on the safe side and benefit from the marvelous accuracy and credibility of the Aviator Predictor app on your device:
 
 1. **Download** the APK file on your smartphone or laptop. With third-party software to run APK files on PCs, you can also customize the desktop version of the system.
-2. Start by signing up for the Predictor Aviator services. While the company’s policies are customer-oriented, it is advantageous to get acquainted with its terms and conditions in detail nonetheless.
-3. Create a user account on one of the recommended websites. Receive a unique ID for your profile after filling out the signup form and verifying your account. It will serve as a personalized predictor Aviator registration code
-4. Open the installed app and hit the “Start” button to activate the forecast mode and check how its algorithm works in real time. It will showcase the result for the next round.
-5. Sign in to the online casino account of your choice and join the Aviator real money mode. Follow the Aviator Predictor app’s recommendations and cash out at the multiplier rate shown on the screen.
-6. Between the rounds, hit the “Next” button to keep going.
-7. Claim your rewards and finish the gaming session.
+2. **Start by signing up** for the Predictor Aviator services. While the company’s policies are customer-oriented, it is advantageous to get acquainted with its terms and conditions in detail nonetheless.
+3. **Create a user account** on one of the recommended websites. Receive a unique ID for your profile after filling out the signup form and verifying your account. It will serve as a personalized predictor Aviator registration code
+4. **Open the installed app** and hit the “Start” button to activate the forecast mode and check how its algorithm works in real time. It will showcase the result for the next round.
+5. **Sign in** to the online casino account of your choice and join the Aviator real money mode. Follow the Aviator Predictor app’s recommendations and cash out at the multiplier rate shown on the screen.
+6. **Between the rounds**, hit the “Next” button to keep going.
+7. **Claim your rewards** and finish the gaming session.
 
 Although this app won’t work for new casinos and startups, it is a perfect match for credible and time-tested solutions. By relying on its services and checking the list of recommended online gambling establishments, you kill two birds with one stone — finding the best bookmaker and elevating your Aviator winning chances and rewards simultaneously.
 
@@ -58,7 +58,7 @@ To improve your Aviator odds and gamble like a pro from the first try, start by 
 5. If you have a definite strategy in mind, use the auto-betting mode with a preset betting amount and cash-out rate.
 6. Track the flight and cash out at the best multiplier per round.
    
-	The use of the code predictor Aviator won’t allow for the use of the Auto Bet and Auto Cash-out features, so your attention to detail and concentration matter a lot:
+## The use of the code predictor Aviator won’t allow for the use of the Auto Bet and Auto Cash-out features, so your attention to detail and concentration matter a lot:
 
 1. Access your account on the target bookmaker’s platform and open the Aviator game in real money mode.
 2. Run the Predictor App installed on your device. Click “Start” to begin receiving real-time multiplier forecasts.
