@@ -65,7 +65,7 @@ To improve your Aviator odds and gamble like a pro from the first try, start by 
 3. Place a bet on the site and cash out, following the suggestions from the Aviator Predictor app.
 4. Click “Next” in the app to check the forecast for the following round.
    
-	Let’s be more precise about how this gaming strategy works in strategy:
+## Let’s be more precise about how this gaming strategy works in strategy:
 
 1. Feel free to choose a small bet at first to monitor the efficiency of the Predictor App. You don’t necessarily have to adjust it from round to round then. Wager the sum you can afford to lose.
 2. After hitting the “Start” button in the app, you will see a multiplier number on the screen — 2.45x, for example. Your task is to cash out before the plan flies away — at 2.44x or below, depending on the risk you want to take.
